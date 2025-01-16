@@ -6,7 +6,7 @@
 
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other content creators
-- 🥅 2024 Goals: Learn more about new programming technologies
+- 🥅 2025 Goals: Learn more about new programming technologies
 - ⚡ Fun fact: I love dogs 😻 and playstation
 
 ### Reach out to me
