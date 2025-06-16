@@ -2,7 +2,7 @@
 ### Hi there, I'm Shirin. :wave:
 
 
-## Junior .Net Developer 
+## .Net Developer 
 
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other content creators
